@@ -10,7 +10,7 @@ I have a deep craving to understand and expand my knowleadge about the tech and 
 EDUCATION FOR ALL is my MANTRA and my daily driver.
 
 
-Some Interesting things u wanna know anout me:
+<b>Some Interesting things u wanna know anout me:</b>
 1) As the name already gave it away. YES! im a weeb >< . My favourite anime are  Natsume book of Freinds && Goodbye Don Gleass.
 2) I hate Apple Juice (╬▔皿▔)╯
 3) I like watching and playing Badminton
